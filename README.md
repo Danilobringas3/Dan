@@ -1,2 +1,0 @@
-# Dan
-Full-stock developer
